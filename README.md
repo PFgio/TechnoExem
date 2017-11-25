@@ -1,0 +1,2 @@
+# TechnoExem
+გამოცდა
